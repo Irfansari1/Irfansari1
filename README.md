@@ -15,7 +15,7 @@ Here are some ideas to get you started:
 ### Hi there, I'm Irfan 👋 
 
 
-## I'm a Full Stack Developer, Husband, Father, and an English Instructor!!
+## I'm an English Teacher, Developer, Husband, Father!!
 
 - 🔭 I have decided to do be a developer after 10 years of English teaching!
 - 🌱 I’m currently learning everything 🤣
